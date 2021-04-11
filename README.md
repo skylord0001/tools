@@ -52,6 +52,6 @@
 <li>Cool in accessing <b>INFORMATION</b></li>
 <li>To upload, make use of <b>terminal path</b></li>
 <li>saves sessions</li>
-<li>employ me for <a href="bot">bot at low price</a></li>
+<li>employ <a href="mailto: nowfemi@gmail.com">me</a> for <a href=""Chatbot: What is a Chatbot? Why are Chatbots Important? - Expert.ai | Expert.ai" https://www.expert.ai/blog/chatbot/">bot</a> at low price</li>
 </h6>
 <br />
