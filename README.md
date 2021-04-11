@@ -1,8 +1,7 @@
 # **TOOLS USE AT USER RISK**
 
-- [hack.py](##hack.py)
-- [sorry.py](##sorrypy)
-- require"sorry.py"
+- [hack.py](## hack.py)
+- [sorry.py](## sorrypy)
 -
 -
 
