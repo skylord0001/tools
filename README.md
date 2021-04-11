@@ -22,5 +22,5 @@
 <li>Execute itself and directory<b>tools</b></li>
 <li>6000++ lines of code</li>
 <li>8 lines writes 6k++ comments</li>
-<li>I only wrote 20 lines of</li>
+<li>I only wrote 20 lines of code</li>
 </h6>
