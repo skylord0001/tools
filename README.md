@@ -4,17 +4,26 @@
 <input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python hack.py</input>
 <br />
 <br />
+<br />
+<br />
 <ul><a href="#so">sorry.py</a></ul>
 <input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python sorry.py</input>
 <br />
 <br />
-
+<br />
+<br />
 <ul><a href="#te">telspy.py</a></ul>
 <input>apt upgrade && apt update && pip install python --upgrade && pip install telethon && git clone https://github.com/nowfemi/tools && cd tools && python telspy.py</input>
-<a href="http://dev.telethon.doc">Get api_id and api_hash here</a>
+<br />
+<a href="https://my.telegram.org">Get api_id and api_hash here</a>
 <br />
 <br />
-
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
 <h2 id="h"> hack.py</h2>
 <h5>This tool is design to perform some scaring moment for noobs</h5>
 <h6>
