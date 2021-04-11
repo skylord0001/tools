@@ -6,7 +6,7 @@
 
 
 ## hack.py
-###This tool is design to perform some scaring moment for noobs
+## This tool is design to perform some scaring moment for noobs
 - Takes all image from directory **DCIM**
 - Move to an **UNKNOW** directory that cant be found
 - Then execute itself and the directory **tools**
