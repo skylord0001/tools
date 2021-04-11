@@ -4,18 +4,20 @@
 - <a href="#h">hack.py</a>
 - <a href="#so">sorry.py</a>
 -
-
+<line />
+<br />
 
 <h2 id="h"> hack.py</h2>
-<h3>This tool is design to perform some scaring moment for noobs</h2>
+<h5>This tool is design to perform some scaring moment for noobs</h5>
 - Takes all image from directory <b>DCIM</b>
 - Move to an <b>UNKNOW</b> directory that cant be found
 - Then execute itself and the directory **tools**
 - Read sorry.py
-
+<line />
+<br />
 
 <h2 id="so"> sorry.py</h2>
-<h3>This is inrespective of <b>hack.py</b></h3>
+<h5>This is inrespective of <b>hack.py</b></h5>
 - Return back ur directory <b>DCIM</b>
 - execute itself and directory <b>tools</b>
 - 6000++ lines of code
