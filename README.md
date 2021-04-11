@@ -1,7 +1,7 @@
 # **TOOLS USE AT USER RISK**
 
-- [hack.py](## hack.py)
-- [sorry.py](## sorrypy)
+- [hack.py](##-hack.py)
+- [sorry.py](##-sorrypy)
 -
 -
 
