@@ -1,4 +1,4 @@
-# **TOOLS USE AT USER RISK**
+# **TOOLS TO BE USED AT USER RISK**
 
 <ul><a href="#h">hack.py</a></ul>
 <input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python hack.py</input>
