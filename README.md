@@ -7,17 +7,17 @@
 
 
 <h2 id="h"> hack.py</h2>
-#### This tool is design to perform some scaring moment for noobs
-- Takes all image from directory **DCIM**
-- Move to an **UNKNOW** directory that cant be found
+<h3>This tool is design to perform some scaring moment for noobs</h2>
+- Takes all image from directory <b>DCIM</b>
+- Move to an <b>UNKNOW</b> directory that cant be found
 - Then execute itself and the directory **tools**
 - Read sorry.py
 
 
 <h2 id="so"> sorry.py</h2>
-#### This is inrespective of **hack.py**
-- Return back ur directory **DCIM**
-- execute itself and directory **tools**
+<h3>This is inrespective of <b>hack.py</b></h3>
+- Return back ur directory <b>DCIM</b>
+- execute itself and directory <b>tools</b>
 - 6000++ lines of code
 - I dont really write the comment but python code did
 - I only wrote 20 lines of code
