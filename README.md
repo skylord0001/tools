@@ -1,8 +1,18 @@
 # **TOOLS USE AT USER RISK**
 
-<ul><a href="#b">about me</a></ul>
 <ul><a href="#h">hack.py</a></ul>
+<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python hack.py</input>
+<br />
+<br />
 <ul><a href="#so">sorry.py</a></ul>
+<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python sorry.py</input>
+<br />
+<br />
+
+<ul><a href="#te">telspy.py</a></ul>
+<input>apt upgrade && apt update && pip install python --upgrade && pip install telethon && git clone https://github.com/nowfemi/tools && cd tools && python telspy.py</input>
+<a href="http://dev.telethon.doc">Get api_id and api_hash here</a>
+<br />
 <br />
 
 <h2 id="h"> hack.py</h2>
