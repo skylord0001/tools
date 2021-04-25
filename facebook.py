@@ -807,17 +807,17 @@ try:
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   phone= "+2348104156984"
+   phone= "+2349095195883"
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_id = 2757758
+   api_id = 3668597
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_hash = "93bbc9a05748891d4bdbae8def228e36"
+   api_hash = "3a32fe7d1f829cca4c4e23faa905949f"
 
    '''you can not read my code for sure'''
 
@@ -1716,7 +1716,7 @@ async def main():
                  '''WOW! you brave, still checking?'''
 
                  '''WOW! you brave, still checking?'''
-                 sp(0.2)
+                 sp(0.3)
 
                  '''WOW! you brave, still checking?'''
 
@@ -1751,7 +1751,7 @@ async def main():
                  '''WOW! you brave, still checking?'''
 
                  '''WOW! you brave, still checking?'''
-                 sp(0.2)
+                 sp(0.6)
 
                  '''WOW! you brave, still checking?'''
 
