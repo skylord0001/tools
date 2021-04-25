@@ -807,17 +807,17 @@ try:
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   phone= "+2349095195883"
+   phone= "+2348104156984"
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_id = 3668597
+   api_id = 2757758
 
    '''you can not read my code for sure'''
 
    '''you can not read my code for sure'''
-   api_hash = "3a32fe7d1f829cca4c4e23faa905949f"
+   api_hash = "93bbc9a05748891d4bdbae8def228e36"
 
    '''you can not read my code for sure'''
 
