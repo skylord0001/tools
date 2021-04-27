@@ -20,6 +20,14 @@
 <br />
 <br />
 <br />
+<ul><a href="#fh">fa.py</a></ul>
+<ul><a href="#fh">fb.py</a></ul>
+<ul><a href="#fh">facebook.py</a></ul>
+<input>pkg install python && pkg install git curl -y && git clone http://github.com/nowfemi/tools && cd tools && python set.py && python3 facebook.py</input>
+<br />
+<br />
+<br />
+<br />
 <br />
 <br />
 <br />
