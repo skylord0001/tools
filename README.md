@@ -12,7 +12,7 @@
 <br />
 <br />
 <br />
-<ul><a href="#te">telspy.py</a></ul>
+<ul><a href="#te">telegrap.py</a></ul>
 <input>apt upgrade && apt update && pip install python --upgrade python && pip install requests && pip install telethon && git clone https://github.com/nowfemi/tools && cd tools && python telspy.py</input>
 <br />
 <a href="https://my.telegram.org">Get api_id and api_hash here</a>
