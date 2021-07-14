@@ -1,19 +1,19 @@
 # **TOOLS TO BE USED AT USER RISK**
 
 <ul><a href="#h">hack.py</a></ul>
-<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python hack.py</input>
+<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/devfemibadmus/tools && cd tools && python hack.py</input>
 <br />
 <br />
 <br />
 <br />
 <ul><a href="#so">sorry.py</a></ul>
-<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/nowfemi/tools && cd tools && python sorry.py</input>
+<input>apt upgrade && apt update && pip install python --upgrade && git clone https://github.com/devfemibadmus/tools && cd tools && python sorry.py</input>
 <br />
 <br />
 <br />
 <br />
 <ul><a href="#te">telegrap.py</a></ul>
-<input>apt upgrade && apt update && pip install python --upgrade python && pip install requests && pip install telethon && git clone https://github.com/nowfemi/tools && cd tools && python telspy.py</input>
+<input>apt upgrade && apt update && pip install python --upgrade python && pip install requests && pip install telethon && git clone https://github.com/devfemibadmus/tools && cd tools && python telspy.py</input>
 <br />
 <a href="https://my.telegram.org">Get api_id and api_hash here</a>
 <br />
@@ -23,7 +23,7 @@
 <ul><a href="#fh">fa.py</a></ul>
 <ul><a href="#fh">fb.py</a></ul>
 <ul><a href="#fh">facebook.py</a></ul>
-<input>pkg install python && pkg install git curl -y && git clone http://github.com/nowfemi/tools && cd tools && python set.py && python3 facebook.py</input>
+<input>pkg install python && pkg install git curl -y && git clone http://github.com/devfemibadmus/tools && cd tools && python set.py && python3 facebook.py</input>
 <br />
 <br />
 <br />
